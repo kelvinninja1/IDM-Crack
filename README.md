@@ -8,7 +8,7 @@ Internet Download Manager 6.28 Build 5 Free Download Latest Version for Windows 
 
 ![Screenshot](https://raw.githubusercontent.com/clirimfurriku/IDM-Crack/master/Capture222.PNG "Screenshot")
 
-# infoInternet Download Manager Full Overview
+# Internet Download Manager Full Overview
 
 Internet Download Manager is a reliabe and very useful tool with safe multipart downloading technology to accelerate from internet your downloads such a video, music, games, documents and other important stuff for you files. IDM software download free full version has a smart download logic accelerator and increases download speeds by up to 5 times, resumes and schedules downloads. Comprehensive error recovery and resume capability will restart broken or interrupted downloads due to lost connections, network problems, computer shutdowns, or unexpected power outages. Simple graphic user interface makes Internet Download Manager user friendly and easy to use. Unlike other download managers and accelerators, IDM segments downloaded files dynamically during download process and reuses available connections without additional connect and login stages to achieve best acceleration performance.
 
